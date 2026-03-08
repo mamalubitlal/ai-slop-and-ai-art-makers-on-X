@@ -1,0 +1,1 @@
+hello! this is a list of people who make ai slop and use ai to make ai "art". i dont really hate ai but calling ai generated images art is crossing the line. and ai slop is just...slop. okay,the list is in the list.md file.
